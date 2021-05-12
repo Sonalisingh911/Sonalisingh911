@@ -13,7 +13,9 @@
 
 - 📄 My Resume [https://drive.google.com/file/d/1yvVrj3aqhidrMPXw8bQ3Kzat1DqfJMBz/view?usp=sharing](https://drive.google.com/file/d/1yvVrj3aqhidrMPXw8bQ3Kzat1DqfJMBz/view?usp=sharing)
 
-- ⚡  **I'm Hopeless Akward and make Jokes when I'm Uncomfortable**
+
+
+⚡Fun-Fact:  **I'm Hopeless Akward and make Jokes when I'm Uncomfortable**
 
 ## ✍ My Work
 
