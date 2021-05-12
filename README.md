@@ -1,5 +1,5 @@
 # Sonalisingh911
-![Sonali Singh's cover](./cover-image)
+![Sonali Singh's cover](./cover-image.png)
 
 ## 🧔 About Me
 
