@@ -19,7 +19,7 @@
 
 ## ✍ My Work
 
-[![Sonali's GitHub stats](https://github-readme-stats.vercel.app/api?username=Sonalisingh911&show_icons=true&theme=dark)](https://github.com/Sonalisingh911)
+[![Sonali's GitHub stats](https://github-readme-stats.vercel.app/api?username=Sonalisingh911&show_icons=true&theme=dark)](https://github.com/Sonalisingh911/Sonalisingh911)
 
 ## Portfolio
   
